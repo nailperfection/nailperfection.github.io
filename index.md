@@ -3,7 +3,7 @@
 2255 El Camino Real
 Santa Clara, California
 
-FOr appointments, please call (408) 320-1533 or email contact@nailperfectionspa.com
+For appointments, please call (408) 320-1533 or email contact@nailperfectionspa.com
 
 ### We love what we do everyday
 
